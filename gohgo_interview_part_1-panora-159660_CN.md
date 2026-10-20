@@ -206,7 +206,7 @@
 
 （TEXT by [Minoru Hirota](https://twitter.com/kawauso3)）
 
-**＊後編は [こちら](https://panora.tokyo/archives/159768 "")**
+**＊後編在 [這裏](gohgo_interview_part_2-panora-159768_CN.md)**
 
 **●関連リンク**・ [武道館ライブ公式サイト](https://spc.himehina.jp/LiveatBudokan27)
 

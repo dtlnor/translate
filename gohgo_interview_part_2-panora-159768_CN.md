@@ -2,7 +2,7 @@
 
 ![](https://asset.panora.tokyo/wp-content/uploads/2026/10/10080507/839882849_1129871479979662_3342536181115152687_n.png)
 
-繼 [前編](https://panora.tokyo/archives/159660) 之後，我們將為大家帶來支援 **HIMEHINA** 的團隊「 **Studio LaRa**」中負責作詞、作曲及演唱會總演出的 **Gohgo**（ゴゴ）先生的訪談。
+繼 [前編](gohgo_interview_part_1-panora-159660_CN.md) 之後，我們將為大家帶來支援 **HIMEHINA** 的團隊「 **Studio LaRa**」中負責作詞、作曲及演唱會總演出的 **Gohgo**（ゴゴ）先生的訪談。
 
 ## 一開始在DAW上排列歌單的時候就已經哭了
 
