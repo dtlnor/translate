@@ -2,7 +2,7 @@
 
 ![](https://asset.panora.tokyo/wp-content/uploads/2026/10/10080507/839882849_1129871479979662_3342536181115152687_n.png)
 
-**HIMEHINA** 是剛結束世界巡迴演唱會「HIMEHINA WORLD Tour 2026『LIFETIME is BUBBLIN』」大結局（Grand Final）演出的雙人組虛擬藝術家。她們剛剛宣佈將於2027年7月13日在日本武道館舉辦演唱會而氣勢正旺，而支撐著她們的團隊「Studio LaRa」中，負責作詞、作曲以及演唱會總演出的正是 **Gohgo**（ゴゴ）先生。
+**HIMEHINA** 是剛結束世界巡迴演唱會「HIMEHINA WORLD Tour 2026『LIFETIME is BUBBLIN』」GF（Grand Final）演出的雙人組虛擬藝術家。她們剛剛宣佈將於2027年7月13日在日本武道館舉辦演唱會而氣勢正旺，而支撐著她們的團隊「Studio LaRa」中，負責作詞、作曲以及演唱會總演出的正是 **Gohgo**（ゴゴ）先生。
 
 本次 PANORA 也前往採訪了演唱會並正在撰寫報導，就在這個時間點，Gohgo先生突然以「我有緊急的事情想跟您談談」為由把我們叫了過去。懷著究竟發生什麼事的心情參加了線上會議後，一個極為震撼的真相隨之浮出水面。
 
@@ -12,7 +12,7 @@
 
 **──聽說您有重大的事情要談，所以這次我們緊急安排了這個訪談的場合。**
 
-**Gohgo**　10月4日的大結局因為進行了免費直播，所以有幸讓許多人觀看了，但在瀏覽網路上的感想時，我看到有人指出「奏響（ヒビカセ）」中打破玻璃的演出，跟2015年舉辦的「niconico超Party」（niconico動畫的年度直播活動，超趴）裡看到的演出很相似。此外，也有人說看了HIMEHINA的演唱會，就好像在看當年的VOCALOID演唱會一樣。
+**Gohgo**　10月4日的GF因為進行了免費直播，所以有幸讓許多人觀看了，但在瀏覽網路上的感想時，我看到有人指出「奏響（ヒビカセ）」中打破玻璃的演出，跟2015年舉辦的「niconico超Party」（niconico動畫的年度直播活動，超趴）裡看到的演出很相似。此外，也有人說看了HIMEHINA的演唱會，就好像在看當年的VOCALOID演唱會一樣。
 
 [【Watch on YouTube】【公式】ニコニコ超パーティー2015 VOCALOIDライブ](https://www.youtube.com/watch?v=u_QS0sjg6YU)
 [![【公式】ニコニコ超パーティー2015 VOCALOIDライブ](https://img.youtube.com/vi/u_QS0sjg6YU/maxresdefault.jpg)](https://www.youtube.com/watch?v=u_QS0sjg6YU)
